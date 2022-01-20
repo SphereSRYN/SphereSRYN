@@ -1,2 +1,2 @@
 ### Hi there 👋
-We all are having joyful, thankful, shareful life. So let's be friends 
+We all are having joyful, thankful, shareful life. let's be friends! 
